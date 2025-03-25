@@ -8,7 +8,8 @@ What my status means on Pony Town!
 
 ![image](https://github.com/user-attachments/assets/aa7fe98e-0c46-46f8-a606-2e16bb838796) ![image](https://github.com/user-attachments/assets/ff0a4ef9-a12c-4769-89dc-ef3bdc3d936b) - i rarely use these two but when i use them its probably that i really want to talk to someone 
 
-![yellowgreen](https://komarev.com/ghpvc/?username=TORNET&color=green)
+
+![yellowgreen](https://komarev.com/ghpvc/?username=TORNET&color=yellowgreen)
 <!---
 TORNNET/TORNNET is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
