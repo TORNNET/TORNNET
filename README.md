@@ -11,6 +11,9 @@ What my status means on Pony Town!
 
 
 
+mostly at Ninjago, Eddsworld, Boyfriend to Death, Dayshift at Freddys and Minecraft Story Mode (mcsm) spots C+H ALWAYS!! (INT!) always welcome
+
+
 ![yellowgreen](https://komarev.com/ghpvc/?username=TORNET&color=yellowgreen)
 <!---
 TORNNET/TORNNET is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
