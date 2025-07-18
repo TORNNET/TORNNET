@@ -4,7 +4,7 @@ What my status means!
 
 ![image](https://github.com/user-attachments/assets/92ba1e96-df68-4c2a-a4ef-8997f855f735) - i probaby have free time and want to talk/someone to interact!! or just mostly bored and waiting for something to happen
 
-![image](https://github.com/user-attachments/assets/a7e20906-7055-43b2-a6b2-785d4d5dbc50) - busy but you can still message me! dont worry i dont mind (i mostly have it on discord)
+![image](https://github.com/user-attachments/assets/a7e20906-7055-43b2-a6b2-785d4d5dbc50) - busy but you can still message me! dont worry i dont mind (i mostly have it on discord so some wierdos from servers im not even active at all dont dm me, u can still do it!! i just like to have it as decoration too)
 
 pony town exclusive:
 
