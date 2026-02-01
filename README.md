@@ -5,7 +5,7 @@
 
 
 
- ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ![postal-postal-dude (1)](https://github.com/user-attachments/assets/fea15b8d-da0f-405e-b72c-ff17a9af6bac)[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=ktyc1wpr13ulwvirduramzgxn&cover_image=true&theme=novatorem&show_offline=true&background_color=630d0d&interchange=true&profanity=false&bar_color=e00000&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=ktyc1wpr13ulwvirduramzgxn&redirect=true)![postal2-sign-my-petition](https://github.com/user-attachments/assets/2d3ea5e1-3e4c-4f0e-9708-29b28a6c1704)
+ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=ktyc1wpr13ulwvirduramzgxn&cover_image=true&theme=novatorem&show_offline=true&background_color=630d0d&interchange=true&profanity=false&bar_color=e00000&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=ktyc1wpr13ulwvirduramzgxn&redirect=true)![postal2-sign-my-petition](https://github.com/user-attachments/assets/2d3ea5e1-3e4c-4f0e-9708-29b28a6c1704)
 
 
 
