@@ -28,6 +28,12 @@ mostly at Ninjago, Eddsworld, Boyfriend to Death, Dayshift at Freddys and Minecr
 
 
 
+![tenor](https://github.com/user-attachments/assets/5d6735fa-da0b-4fd8-8cb7-99db9fcd7fdc)
+
+
+
+
+
 ![a83](https://github.com/user-attachments/assets/45da2e47-1c1d-4f3a-b7b0-bb4a06903ac4)
 
 
