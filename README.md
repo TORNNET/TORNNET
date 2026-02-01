@@ -1,5 +1,5 @@
 
- ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=ktyc1wpr13ulwvirduramzgxn&cover_image=true&theme=novatorem&show_offline=true&background_color=630d0d&interchange=true&profanity=false&bar_color=e00000&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=ktyc1wpr13ulwvirduramzgxn&redirect=true)
+ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=ktyc1wpr13ulwvirduramzgxn&cover_image=true&theme=novatorem&show_offline=true&background_color=630d0d&interchange=true&profanity=false&bar_color=e00000&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=ktyc1wpr13ulwvirduramzgxn&redirect=true)
 
 
 What my status means!
