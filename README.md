@@ -5,7 +5,8 @@
 
 
 
- ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=ktyc1wpr13ulwvirduramzgxn&cover_image=true&theme=novatorem&show_offline=true&background_color=630d0d&interchange=true&profanity=false&bar_color=e00000&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=ktyc1wpr13ulwvirduramzgxn&redirect=true)
+ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=ktyc1wpr13ulwvirduramzgxn&cover_image=true&theme=novatorem&show_offline=true&background_color=630d0d&interchange=true&profanity=false&bar_color=e00000&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=ktyc1wpr13ulwvirduramzgxn&redirect=true)![postal-postal-game](https://github.com/user-attachments/assets/5abb46fd-935f-4a41-a7e3-c6dbdcc41a63)
+
 
 
 What my status means!
