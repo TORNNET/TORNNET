@@ -1,4 +1,9 @@
-![a11](https://github.com/user-attachments/assets/a4d8257d-6c27-42e3-b880-597bb3436660)
+![a11](https://github.com/user-attachments/assets/a4d8257d-6c27-42e3-b880-597bb3436660)![victims](https://github.com/user-attachments/assets/23aabc45-9002-47ec-8ada-2fe0b02d7f62)![a14](https://github.com/user-attachments/assets/92e3218a-1dfe-4b24-85a8-4d404cc10dae)![z9](https://github.com/user-attachments/assets/5726dec2-a51e-4833-a422-b15581f707a1)![83879421-Ls-H](https://github.com/user-attachments/assets/bf0ce4c8-4d59-4cc7-b872-3971595ee9a5)![h14](https://github.com/user-attachments/assets/1ea18877-8324-46e4-88cd-6455d1f0bd0d)
+
+
+
+
+
 
  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=ktyc1wpr13ulwvirduramzgxn&cover_image=true&theme=novatorem&show_offline=true&background_color=630d0d&interchange=true&profanity=false&bar_color=e00000&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=ktyc1wpr13ulwvirduramzgxn&redirect=true)
 
