@@ -32,7 +32,7 @@ mostly at Ninjago, Eddsworld, Boyfriend to Death, Dayshift at Freddys and Minecr
 ![a83](https://github.com/user-attachments/assets/45da2e47-1c1d-4f3a-b7b0-bb4a06903ac4)
 
 
-![red](https://komarev.com/ghpvc/?username=TORNET&color=yellowgreen)
+![red](https://komarev.com/ghpvc/?username=TORNET&color=red)
 <!---
 TORNNET/TORNNET is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
