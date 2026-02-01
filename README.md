@@ -24,12 +24,12 @@ mostly at Ninjago, Eddsworld, Boyfriend to Death, Dayshift at Freddys and Minecr
 
 
 ![l11](https://github.com/user-attachments/assets/33c863ff-7022-4ac0-bc6d-8db6c051f1ce)![83879421-Ls-H](https://github.com/user-attachments/assets/bf0ce4c8-4d59-4cc7-b872-3971595ee9a5) 
-<img width="99" height="56" alt="d29" src="https://github.com/user-attachments/assets/97b3cf58-9bf5-4108-a3b0-565da00cda50" /> <img width="99" height="56" alt="d65" src="https://github.com/user-attachments/assets/c5ddf2da-3dc5-493e-8989-d59a74232cf2" /> <img width="99" height="56" alt="i23" src="https://github.com/user-attachments/assets/6695fd9b-5bb1-4872-947d-63ac407ab1ce" /> ![w10](https://github.com/user-attachments/assets/12ce422a-dc0b-4a7d-9de9-0e73c728108e)![z4](https://github.com/user-attachments/assets/a00652b1-c458-4d77-b810-c32576ff67c5)
+<img width="99" height="56" alt="d29" src="https://github.com/user-attachments/assets/97b3cf58-9bf5-4108-a3b0-565da00cda50" /> <img width="99" height="56" alt="d65" src="https://github.com/user-attachments/assets/c5ddf2da-3dc5-493e-8989-d59a74232cf2" /> <img width="99" height="56" alt="i23" src="https://github.com/user-attachments/assets/6695fd9b-5bb1-4872-947d-63ac407ab1ce" /> 
 
 
 
 
-![a83](https://github.com/user-attachments/assets/45da2e47-1c1d-4f3a-b7b0-bb4a06903ac4)
+![a83](https://github.com/user-attachments/assets/45da2e47-1c1d-4f3a-b7b0-bb4a06903ac4)![w10](https://github.com/user-attachments/assets/12ce422a-dc0b-4a7d-9de9-0e73c728108e)![z4](https://github.com/user-attachments/assets/a00652b1-c458-4d77-b810-c32576ff67c5)
 
 
 ![red](https://komarev.com/ghpvc/?username=TORNET&color=red)
