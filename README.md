@@ -5,7 +5,7 @@
 
 
 
- ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=ktyc1wpr13ulwvirduramzgxn&cover_image=true&theme=novatorem&show_offline=true&background_color=630d0d&interchange=true&profanity=false&bar_color=e00000&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=ktyc1wpr13ulwvirduramzgxn&redirect=true)
+ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=ktyc1wpr13ulwvirduramzgxn&cover_image=true&theme=novatorem&show_offline=true&background_color=630d0d&interchange=true&profanity=false&bar_color=e00000&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=ktyc1wpr13ulwvirduramzgxn&redirect=true)
 
 
 What my status means!
@@ -24,7 +24,7 @@ mostly at Ninjago, Eddsworld, Boyfriend to Death, Dayshift at Freddys and Minecr
 
 
 ![w10](https://github.com/user-attachments/assets/12ce422a-dc0b-4a7d-9de9-0e73c728108e)![l11](https://github.com/user-attachments/assets/33c863ff-7022-4ac0-bc6d-8db6c051f1ce)
- /> <img width="99" height="56" alt="d65" src="https://github.com/user-attachments/assets/c5ddf2da-3dc5-493e-8989-d59a74232cf2" /> <img width="99" height="56" alt="i23" src="https://github.com/user-attachments/assets/6695fd9b-5bb1-4872-947d-63ac407ab1ce" /> ![83879421-Ls-H](https://github.com/user-attachments/assets/bf0ce4c8-4d59-4cc7-b872-3971595ee9a5)![z4](https://github.com/user-attachments/assets/a00652b1-c458-4d77-b810-c32576ff67c5)
+ /> <img width="99" height="56" alt="d65" src="https://github.com/user-attachments/assets/c5ddf2da-3dc5-493e-8989-d59a74232cf2" /> <img width="99" height="56" alt="i23" src="https://github.com/user-attachments/assets/6695fd9b-5bb1-4872-947d-63ac407ab1ce" /> ![z4](https://github.com/user-attachments/assets/a00652b1-c458-4d77-b810-c32576ff67c5)![83879421-Ls-H](https://github.com/user-attachments/assets/bf0ce4c8-4d59-4cc7-b872-3971595ee9a5)
 
 
 
