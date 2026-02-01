@@ -1,3 +1,7 @@
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=ktyc1wpr13ulwvirduramzgxn&cover_image=true&theme=novatorem&show_offline=true&background_color=630d0d&interchange=true&profanity=false&bar_color=e00000&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=ktyc1wpr13ulwvirduramzgxn&redirect=true)
+
+
 What my status means!
 
 ![image](https://github.com/user-attachments/assets/5090a4a2-6a8f-4aa4-ad30-54cf262a5c6e) - im probably offtab or just away but i can still respond to you! (best way to interact then is to just whisper if ur from ponytown)
