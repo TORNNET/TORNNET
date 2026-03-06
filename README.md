@@ -36,11 +36,7 @@ mostly at Postal, Ninjago, Eddsworld, Boyfriend to Death/YKMET, Dayshift at Fred
 ㅤㅤ
 ㅤㅤ
 ㅤㅤ
-
-
-![a83](https://github.com/user-attachments/assets/45da2e47-1c1d-4f3a-b7b0-bb4a06903ac4)
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤDNI IF!
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤDNI IF!
 
 
  Homophobic, Transphobic, Xenophobic, etc.
@@ -52,6 +48,11 @@ mostly at Postal, Ninjago, Eddsworld, Boyfriend to Death/YKMET, Dayshift at Fred
  
  
  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤSupports, participates, tolerates, or justify any of the above.
+
+
+![a83](https://github.com/user-attachments/assets/45da2e47-1c1d-4f3a-b7b0-bb4a06903ac4)
+
+
 
 
 ![red](https://komarev.com/ghpvc/?username=TORNET&color=red&label=victims)
