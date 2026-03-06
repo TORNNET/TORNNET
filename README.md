@@ -10,6 +10,17 @@
 
 
 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤDNI IF!
+ Homophobic, Transphobic, Xenophobic, etc.
+ Incest shipper, Truscum / Transmed / Tucute, Syscourse 
+ Racist, Nazi, Sexist, Discrimination, etc.
+ Invalidates A Person's Pronouns / Gender / Identity
+ Pedophile, Sexualizes Minors, Jokes About R×pe, Other illegal or immoral tropes etc.
+ You think fiction affects reality
+
+Supports, participates, tolerates, or justify any of the above.
+
+
 What my status means!
 
 ![image](https://github.com/user-attachments/assets/5090a4a2-6a8f-4aa4-ad30-54cf262a5c6e) - im probably offtab or just away but i can still respond to you! (best way to interact then is to just whisper if u r from ponytown)
