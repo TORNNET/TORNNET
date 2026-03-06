@@ -27,7 +27,8 @@
  
  
  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤSupports, participates, tolerates, or justify any of the above.
- 
+
+ ![image]([https://github.com/user-attachments/assets/5090a4a2-6a8f-4aa4-ad30-54cf262a5c6e](https://64.media.tumblr.com/c8943d377df2e3a7def3e36b547cc94e/a998844aae4bf8c4-ec/s400x600/e7d63e177466ac438f6f65829d29940af037e7c0.pnj))
 
 What my status means!
 
