@@ -40,10 +40,15 @@ mostly at Postal, Ninjago, Eddsworld, Boyfriend to Death/YKMET, Dayshift at Fred
 
 
  Homophobic, Transphobic, Xenophobic, etc.
+ 
  Incest shipper, Truscum / Transmed / Tucute, Syscourse
+ 
  Racist, Nazi, Sexist, Discrimination, etc.
+ 
  Invalidates A Person's Pronouns / Gender / Identity
+ 
  Pedophile, Sexualizes Minors, Jokes About R×pe, Other illegal or immoral tropes etc.
+ 
  You think fiction affects reality
  
  
