@@ -39,6 +39,7 @@ mostly at Postal, Ninjago, Eddsworld, Boyfriend to Death/YKMET, Dayshift at Fred
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤDNI IF!
 
 
+<p align="center">
  Homophobic, Transphobic, Xenophobic, etc.
  
  Incest shipper, Truscum / Transmed / Tucute, Syscourse
@@ -50,6 +51,7 @@ mostly at Postal, Ninjago, Eddsworld, Boyfriend to Death/YKMET, Dayshift at Fred
  Pedophile, Sexualizes Minors, Jokes About R×pe, Other illegal or immoral tropes etc.
  
  You think fiction affects reality
+ </p>
  
  
  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤSupports, participates, tolerates, or justify any of the above.
