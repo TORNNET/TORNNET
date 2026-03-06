@@ -49,7 +49,6 @@ mostly at Postal, Ninjago, Eddsworld, Boyfriend to Death/YKMET, Dayshift at Fred
  
  <p align="center">Pedophile, Sexualizes Minors, Jokes About R×pe, Other illegal or immoral tropes etc.
  
- <p align="center">You think fiction affects reality</p>
 
  
  
