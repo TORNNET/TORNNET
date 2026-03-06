@@ -10,15 +10,6 @@
 
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤDNI IF!
- Homophobic, Transphobic, Xenophobic, etc.
- Incest shipper, Truscum / Transmed / Tucute, Syscourse 
- Racist, Nazi, Sexist, Discrimination, etc.
- Invalidates A Person's Pronouns / Gender / Identity
- Pedophile, Sexualizes Minors, Jokes About R×pe, Other illegal or immoral tropes etc.
- You think fiction affects reality
-
-Supports, participates, tolerates, or justify any of the above.
 
 
 What my status means!
@@ -48,6 +39,21 @@ mostly at Postal, Ninjago, Eddsworld, Boyfriend to Death/YKMET, Dayshift at Fred
 
 
 ![a83](https://github.com/user-attachments/assets/45da2e47-1c1d-4f3a-b7b0-bb4a06903ac4)
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤDNI IF!
+ Homophobic, Transphobic, Xenophobic, etc.
+ 
+ Incest shipper, Truscum / Transmed / Tucute, Syscourse
+ 
+ Racist, Nazi, Sexist, Discrimination, etc.
+ 
+ Invalidates A Person's Pronouns / Gender / Identity
+ 
+ Pedophile, Sexualizes Minors, Jokes About R×pe, Other illegal or immoral tropes etc.
+ 
+ You think fiction affects reality
+
+Supports, participates, tolerates, or justify any of the above.
 
 
 ![red](https://komarev.com/ghpvc/?username=TORNET&color=red&label=victims)
