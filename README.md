@@ -10,7 +10,24 @@
 
 
 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤDNI IF!
 
+
+<p align="center">Homophobic, Transphobic, Xenophobic, etc.
+ 
+ <p align="center">Incest shipper, Truscum / Transmed / Tucute, Syscourse
+ 
+ <p align="center">Racist, Nazi, Sexist, Discrimination, etc.
+ 
+ <p align="center">Invalidates A Person's Pronouns / Gender / Identity
+ 
+ <p align="center">Pedophile, Sexualizes Minors, Jokes About R×pe, Other illegal or immoral tropes etc.
+ 
+
+ 
+ 
+ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤSupports, participates, tolerates, or justify any of the above.
+ 
 
 What my status means!
 
@@ -36,23 +53,7 @@ mostly at Postal, Ninjago, Eddsworld, Boyfriend to Death/YKMET, Dayshift at Fred
 ㅤㅤ
 ㅤㅤ
 ㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤDNI IF!
 
-
-<p align="center">Homophobic, Transphobic, Xenophobic, etc.
- 
- <p align="center">Incest shipper, Truscum / Transmed / Tucute, Syscourse
- 
- <p align="center">Racist, Nazi, Sexist, Discrimination, etc.
- 
- <p align="center">Invalidates A Person's Pronouns / Gender / Identity
- 
- <p align="center">Pedophile, Sexualizes Minors, Jokes About R×pe, Other illegal or immoral tropes etc.
- 
-
- 
- 
- ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤSupports, participates, tolerates, or justify any of the above.
 
 
 ![a83](https://github.com/user-attachments/assets/45da2e47-1c1d-4f3a-b7b0-bb4a06903ac4)
