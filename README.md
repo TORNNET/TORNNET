@@ -28,7 +28,8 @@
  
  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤSupports, participates, tolerates, or justify any of the above.
 
- <img width="400" height="52" alt="tumblr_c8943d377df2e3a7def3e36b547cc94e_e7d63e17_400" src="https://github.com/user-attachments/assets/62a02d48-b931-42c3-8eea-c5770c0536d8" />
+<img width="1280" height="70" alt="tumblr_51bd6f7ece792d002d4913dc7d38711c_aca2104e_1280" src="https://github.com/user-attachments/assets/ae1714de-99e1-4ace-b95a-6348545ac172" />
+
  
 What my status means!
 
