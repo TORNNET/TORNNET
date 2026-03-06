@@ -41,15 +41,15 @@ mostly at Postal, Ninjago, Eddsworld, Boyfriend to Death/YKMET, Dayshift at Fred
 
 <p align="center">Homophobic, Transphobic, Xenophobic, etc.
  
- Incest shipper, Truscum / Transmed / Tucute, Syscourse
+ <p align="center">Incest shipper, Truscum / Transmed / Tucute, Syscourse
  
- Racist, Nazi, Sexist, Discrimination, etc.
+ <p align="center">Racist, Nazi, Sexist, Discrimination, etc.
  
- Invalidates A Person's Pronouns / Gender / Identity
+ <p align="center">Invalidates A Person's Pronouns / Gender / Identity
  
- Pedophile, Sexualizes Minors, Jokes About R×pe, Other illegal or immoral tropes etc.
+ <p align="center">Pedophile, Sexualizes Minors, Jokes About R×pe, Other illegal or immoral tropes etc.
  
- You think fiction affects reality</p>
+ <p align="center">You think fiction affects reality</p>
  
  
  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤSupports, participates, tolerates, or justify any of the above.
